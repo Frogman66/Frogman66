@@ -2,7 +2,7 @@
 - 👀 I’m interested in art
 - 🌱 I’m currently learning not much
 - 💞️ I’m looking to collaborate on stuff
-- 📫 How to reach me is deviantart and my user is @Frogman66art
+- 📫 How to reach me is scratch and my user is Frogman66
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: I'm alive
 
